@@ -7,6 +7,7 @@ processes and costs, and delivering scalable solutions. Adept at fostering a col
 while aligning technical efforts with strategic business goals. Passionate about mentoring and leading cross-functional 
 initiatives that deliver measurable growth to the organization.
 
+[linkedin.com/in/joseph-isom](https://www.linkedin.com/in/joseph-isom)
 <!--
 **JosephIsom/josephisom** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
